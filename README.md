@@ -1,1 +1,0 @@
-# terjemahin.github.io
